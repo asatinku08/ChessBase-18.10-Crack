@@ -1,0 +1,1 @@
+# ChessBase-18.10-Crack
